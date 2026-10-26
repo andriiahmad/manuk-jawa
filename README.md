@@ -1,1 +1,1 @@
-# ini deskripsi, kalo ada ingpo dibaca😂
+# ini deskripsi, makanya kalo ada ingpo dibaca😂
